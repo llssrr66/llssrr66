@@ -7,4 +7,4 @@
 - ⚡ Fun fact: gosto de ler.
 
 
-https://media1.tenor.com/m/kktFyjeMlEEAAAAC/taylor-swift.gif
+![](https://media1.tenor.com/m/kktFyjeMlEEAAAAC/taylor-swift.gif)
