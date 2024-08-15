@@ -5,3 +5,6 @@
 - 📫 Para me encontrar email: 
 - 😄 Pronomes: ela/dela
 - ⚡ Fun fact: gosto de ler.
+
+
+https://media1.tenor.com/m/kktFyjeMlEEAAAAC/taylor-swift.gif
